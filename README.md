@@ -1,0 +1,1 @@
+# shopping00.com
